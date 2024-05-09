@@ -38,6 +38,12 @@ a.21308051280331@cbtis128.edu.mx
 ![image](https://github.com/CastroNancy/uiiAct10_0331/assets/143777514/d4d79110-420e-456f-957e-c67ee3a8fbc3)
 ![image](https://github.com/CastroNancy/uiiAct10_0331/assets/143777514/b54c4b19-67c7-4913-841d-48521603ea55)
 ![image](https://github.com/CastroNancy/uiiAct10_0331/assets/143777514/014dfd2c-6e7a-4690-92d1-bd573507d555)
+![image](https://github.com/CastroNancy/uiiAct10_0331/assets/143777514/f31ab8d6-b09d-47a9-9b0b-098b98fb273f)
+![image](https://github.com/CastroNancy/uiiAct10_0331/assets/143777514/feee804d-e156-4613-a5cc-80df702bb731)
+![image](https://github.com/CastroNancy/uiiAct10_0331/assets/143777514/b6e3d996-109b-4aed-b7a8-f17ada662031)
+![image](https://github.com/CastroNancy/uiiAct10_0331/assets/143777514/05a52ce9-77b1-4ade-98e1-c454c501b8df)
+![image](https://github.com/CastroNancy/uiiAct10_0331/assets/143777514/8cf5f0d3-8ed9-4332-9c8a-27a9859e9380)
+![image](https://github.com/CastroNancy/uiiAct10_0331/assets/143777514/eb5621e1-cef7-4d2e-9fb5-f43fb0ffa524)
 
 
 
